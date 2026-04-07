@@ -1,4 +1,4 @@
-## Hi there 👋
+${\color{#F5749B}\textsf{ 𝒑roudly }}$ ${\color{#5B4258}\textsf{ ♡ }}$ ${\color{#5B4258}\textsf{ 𝒕aken }}$ ㅤbyㅤㅤ[@dragon ♡](https://github.com/dragonplays-forsaken)
 
 <!--
 **AMERCXNEE/AMERCXNEE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
