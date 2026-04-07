@@ -1,3 +1,6 @@
+![](https://github.com/AMERCXNEE/AMERCXNEE/blob/468a70c0f00c7c41758891cc89b79eab283fd6d3/87423812ccd947e4b03fd37154335516.gif)
+
+
 ${\color{#F5749B}\textsf{ 𝒑roudly }}$ ${\color{#EFE8D5}\textsf{ ♡ }}$ ${\color{#5B4258}\textsf{ 𝒕aken }}$ ㅤbyㅤㅤ[@dragon ♡](https://github.com/dragonplays-forsaken)
 
 <!--
